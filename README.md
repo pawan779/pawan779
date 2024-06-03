@@ -5,7 +5,7 @@
 
 - 👯 I’m looking to collaborate on **Frontend Projects**
 
-- 👨‍💻 All of my projects are available at https://pawandharel.com.np
+- 👨‍💻 All of my projects are available at [https://pawandharel.com.np](https://pawandharel.com.np/#projects)
 
 - 📫 How to reach me **pawan.dharel777@gmail.com**
 
