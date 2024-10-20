@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **pawan.dharel777@gmail.com**
 
-- 📄 Know about my experiences <a href="https://drive.google.com/file/d/176ksL_Q3Z4qZywWYWVN3SvgwjJ34SNJf/view" target="blank">Resume</a>
+- 📄 Know about my experiences <a href="https://drive.google.com/file/d/1i7JR7iOw8vLzDPVpoTFiyuBN6NK41GMv/view?usp=share_link" target="blank">Resume</a>
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
